@@ -1,0 +1,2 @@
+# ratumasayu
+elektronika daya
